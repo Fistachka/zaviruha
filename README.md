@@ -1,39 +1,46 @@
-<img width="6846" height="4564" alt="1(1)" src="https://github.com/user-attachments/assets/aaaa5e09-a231-44be-88ac-ed7cb7ff8610" /><span id="ru"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
+<span id="ru"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-"Зурбаган" из к/ф "Выше радуги" 1986г. 4 часть
-![8](https://github.com/user-attachments/assets/24995372-a1e3-4df6-b94f-47be14f873b5)
+"Завируха" ("Белый снег") ВИА "Верасы" 1982г. 1 часть
+![2](https://github.com/user-attachments/assets/027c23c7-f88c-49fe-bc16-57e158beabb2)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/5tdvO3iUvy0" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/AsU5E5TnjwI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-Два часа на часах, день ненастный не нашего века,
-Смотрит девушка с пристани вслед кораблю,
-И плечами поводит, озябнув от ветра.
-Я люблю это время, безнадежно люблю
+Белы снег, белы снег, белы снег, белы цень, 
+Белы снег, белы снег, белы снег, белы дзень.  
+Ты куды мяне клiчаш, паслухай, 
+Завiруха мяце, завiруха.  
+На дварэ нi машын, нi людзей,  
+На дварэ нi машын, нi людзей.   
+Завiруха мяце, завiруха,  
+Ты куды мяне клiчаш, паслухай,  
+На дварэ нi машын, нi людзей,  
+Нi машын, нi людзей.  
 
 Предыдущий урок:
-![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/238689a6-cd88-4cee-8f60-3be63a161e5b =200x200)
-stolbitsa.com/fistachka/zurbagan3<br><br>
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/7df95dcc-1e3c-4247-acae-66de63832c11 =200x200)
+stolbitsa.com/fistachka/zurbagan4<br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-"Zurbagan" from the film "Above the Rainbow" 1986 4 st verse
-![8](https://github.com/user-attachments/assets/24995372-a1e3-4df6-b94f-47be14f873b5)
+"Zavirukha (White Snow...)"  1982 VIA Verasy 1 st verse
+![2](https://github.com/user-attachments/assets/027c23c7-f88c-49fe-bc16-57e158beabb2)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/MIYWqYXL2vs" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/KRhHKlKgoic" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-Dva chasa na chasah, den' nenastnyj ne nashego veka,
-Smotrit devushka s pristani vsled korablyu,
-I plechami povodit, ozyabnuv ot vetra.
-YA lyublyu eto vremya, beznadezhno lyublyu
+Bely sneg, bely sneg, bely sneg, bely cen', 
+Bely sneg, bely sneg, bely sneg, bely dzen'.  
+Ty kudy myane klichash, pasluhaj, 
+Zaviruha myace, zaviruha.  
+Na dvare ni mashyn, ni lyudzej,  
+Na dvare ni mashyn, ni lyudzej.   
+Zaviruha myace, zaviruha,  
+Ty kudy myane klichash, pasluhaj,  
+Na dvare ni mashyn, ni lyudzej,  
+Ni mashyn, ni lyudzej.
 
 Previous lesson:
-![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/238689a6-cd88-4cee-8f60-3be63a161e5b =200x200)
-stolbitsa.com/fistachka/zurbagan3<br><br>
-
-![2](https://github.com/user-attachments/assets/027c23c7-f88c-49fe-bc16-57e158beabb2)
-![1](https://github.com/user-attachments/assets/f6e56772-d3d6-4cf1-9e7b-7ab17f3719ff)
-
-
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/7df95dcc-1e3c-4247-acae-66de63832c11 =200x200)
+stolbitsa.com/fistachka/zurbagan4<br><br>
 
